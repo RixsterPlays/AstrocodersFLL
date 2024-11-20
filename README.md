@@ -19,7 +19,7 @@ The below Robot Game rule book is not included in the prints because it's too bi
 
 Link to see all the details: https://firstintexas.padlet.org/FiTAdmin/fit-fll-north-jbmmm73l8too1ec9/wish/wKmOZ5JqYo6XWzMA
 
-Team A (Rithvik and Tejas) and Team B (Saharsh, Aarnav and Sid)
+Team A (Rithvik and Tejas) and Team B (Saharsh, Aarnav)
 Mon: 5 - 6:30, 6:30 - 8
 Tue: 5 - 6:30, 6:30 - 8
 Wed: 6:30 - 8, 5 - 6:30
